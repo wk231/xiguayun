@@ -1,4 +1,4 @@
-实测「西瓜云」教程，强烈推荐！👉👉👉 [一键注册，免费使用24小时](https://sw.xiguashangwang.top/?u=github)
+实测「西瓜云」教程，强烈推荐！👉👉👉 [一键注册](https://sw.xiguashangwang.top/?u=github)
 
 这款Tizi 我个⼈也⽤了3 个⽉了，体验确实还可以了，平时主要⽤来看X 的帖⼦、逛逛V2ex、看看Tk。
 
